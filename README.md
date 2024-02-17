@@ -18,3 +18,7 @@
 ![image](https://github.com/amrutha1320/NotesManager-intern/assets/134827744/e325fd57-9d27-4715-a452-07b6c04aeb21)
 
 
+![image](https://github.com/amrutha1320/NotesManager-intern/assets/134827744/9a981f9f-96c6-4358-a425-d55d8e40b40b)
+
+
+
